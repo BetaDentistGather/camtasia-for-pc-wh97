@@ -1,4 +1,4 @@
-# 
+# Enhance Camtasia for PC | Camtasia for Windows with secure Camtasia for PC | Camtasia for Windows Script | LUT-support + export-presets, the #1 script. Includes LUT-support and
 
 
 
